@@ -1,2 +1,1 @@
-# gama-academy
-Exercícios Gama Academy
+Curso muito bom, estou aprendendo bastante!
